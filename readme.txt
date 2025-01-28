@@ -1,1 +1,0 @@
-hi kore.ai what's going on......!!!
